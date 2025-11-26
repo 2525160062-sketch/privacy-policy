@@ -7,4 +7,4 @@ Si deseas solicitar la eliminación de tus datos personales asociados con esta a
 3. Nuestro equipo procesará tu solicitud y eliminará tus datos de forma permanente.
 
 **Correo de contacto:**  
-tu-correo@ejemplo.com
+caballeoruben7@gmail.com
